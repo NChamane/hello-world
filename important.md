@@ -1,0 +1,1 @@
+I fully understand the work and what the card has is much more important than rushing to finish as many cards as possible. The point is to quickly finish, but it is to understand in order to launch a successful career.
